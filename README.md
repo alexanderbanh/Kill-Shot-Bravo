@@ -1,1 +1,1 @@
-# Kill-Shot-Bravo
+<p><a href="https://t.co/z4QaZry8kr#killshot_hack" target="_blank"><img style="vertical-align: middle;" src="https://i.imgur.com/jtABW5Q.png" alt="" width="338" height="150" /></a></p>
